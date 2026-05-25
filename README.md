@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-MECC060502HGRLRRA6
+MECC060502HGRLRRA6
